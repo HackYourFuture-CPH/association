@@ -1,6 +1,4 @@
 # 2024
 
-#### General Assembly
-
-#### Documents
+Here you can find relevant documents related to our association's General Assembly and board work.
 
